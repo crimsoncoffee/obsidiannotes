@@ -1,0 +1,1 @@
+[[Introduction_to_Linear_Algebra,_5th_Edition_(Gilbert_Strang)_(Z-Library)_1731855436482_0.pdf]] [[Introduction_to_Linear_Algebra,_5th_Edition_(Gilbert_Strang)_(Z-Library)_1731855436482_0.pdf#page=11&selection=72,32,139,14|Introduction_to_Linear_Algebra,_5th_Edition_(Gilbert_Strang)_(Z-Library)_1731855436482_0, p.11]]
